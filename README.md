@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **sarthak20576@iiitd.ac.in**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1TdKYOwRWia4rn7tciJtlcvhyDXQ6bMak/view?usp=sharing](https://drive.google.com/file/d/1TdKYOwRWia4rn7tciJtlcvhyDXQ6bMak/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1TdKYOwRWia4rn7tciJtlcvhyDXQ6bMak/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 
